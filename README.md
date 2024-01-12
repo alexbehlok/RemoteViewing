@@ -1,2 +1,8 @@
 # Remote Viewing 
-## TABLE OF CONTENTS
+## CONTENTS:
+  - Reference Materials
+  - Example sessions
+  - Extras
+  - Tips
+  - Analysis
+  - Personal Sessions/Training
